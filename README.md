@@ -5,7 +5,7 @@ I have been working with Machine Learning since 2016, holding a BSc in Economics
 
 Let me know if you are curious about any of my projects.
 
-Thanks for visiting my Github! 😄
+Thanks for visiting my Github!
 
 #### Contact me on:
 
